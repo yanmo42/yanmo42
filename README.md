@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning (Jarvis Commands)
 - 💞️ I’m looking to collaborate on Source Files
 - 📫 How to reach me Ionosphere tapping
-- 😄 Pronouns: he/him/
+- 😄 Pronouns: Lemurian Isotope
 - ⚡ Fun fact: There is currently a cat staring at me (not anymore)
 
 <!---
