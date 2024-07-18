@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @yanmo42
+- 👋 Hola, I’m @yanmo42
 - 👀 I’m interested in AI research, and building better productivity tools/systems
 - 🌱 I’m currently learning nothing
 - 📫 How to reach me Ionosphere tapping
